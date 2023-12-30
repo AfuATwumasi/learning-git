@@ -1,1 +1,1 @@
-kofi is a good bow
+kofi is a good boy
